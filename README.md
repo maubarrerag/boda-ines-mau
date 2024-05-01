@@ -1,4 +1,4 @@
-# ¡Ines & Mau! 🎊
+# ¡Inés & Mau! 🎊
 
 Hola, nos estamos casando y nos gustar&iacute;a que nos acompañes a este evento, en esta p&aacute;gina encontrar&aacute;s todos los detalles del evento, pero de todas formas si tienes alguna duda o inquietud no dudes en contactarnos  🎉
 
@@ -44,7 +44,7 @@ No, y esto no es algo que nosotros hayamos decidido, pero como el evento va a se
 ¡Por supuesto! Estamos intentando que sea una comida con variedad para todas las dietas pero por favor avísanos con anticipación sobre cualquier restricción dietética y haremos los arreglos necesarios para asegurarnos de que disfrutes de la comida sin preocupaciones. 🥗🍰
 
 **¿Tienen mesa de regalos?**
-No, pero pensamos nos gustaria que en lugar de regalarnos algo dones a esta campaña: 
+No, pero pensamos nos gustaria que en lugar de regalarnos algo dones a esta asociación: [Nariz Roja](https://narizroja.org/te-gustaria-ayudar/)
 
 
 >[!TIP]

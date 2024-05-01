@@ -1,4 +1,4 @@
-# ¡Ines & Mau! 🎊
+# ¡Inés & Mau! 🎊
 
 El evento será en un el Hotel Grand Fiesta Americana ubicado en Av. de las Américas 1551, Providencia, 44630 Guadalajara, Jal. [Mapa](https://maps.app.goo.gl/Pt8Fku9uZCEa8xV9A)
 

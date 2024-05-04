@@ -6,28 +6,26 @@ Hola, nos estamos casando y nos gustar&iacute;a que nos acompañes a este evento
 
 - **Fecha:** 15 de Junio de 2024
 - **Lugar:** Hotel Grand Fiesta Americana en Guadalajara, Jalisco. [Ver Detalles del Hotel](HOTEL.md)
-- **Hora:** Iniciamos a las 18:00hrs.
 
+## Agenda
+
+- 6:00 PM Rcepción
+- 7:15 PM Boda civil
+- 8:00 Cena
 
 ## Código de Vestimenta
 
-¡Ponte guap@ y elegante! El dress code es **casual semi-formal**.  💃🕺  
-Algunas ideas para ellos: (https://www.pinterest.com.mx/sara90121/traje-boda-hombre-invitado/)  
-Y para ellas: 
+Nosotros queremos que todos estén cómodos pero sugerimos usar algo **casual-formal**  💃🕺  
+Aquí podrás encontrar algunas ideas:  [Pinterest](https://pin.it/2zbCBMGe4)
 
-## El Menú
+## Regalo de Bodas
 
-En el evento contaremos con buffette con estas opciones:
+Nos emociona enormemente compartir con ustedes este momento. En lugar de recibir regalos materiales, nos gustaría invitarlos a considerar hacer una donación a la Asociación Nariz Roja. ( Más o menos así empezó nuestra historia...con una donación :) )
 
-1. Plato Fuerte:
-   - Suprema de pollo
-   - Medallones de res en salsa de Pinot noir
-   - Canelones de verduras
-   - Lasagna al horno
-2. Postre
-   - Tiramisú
-   - Pastel de queso ricota
-   - Pastel de avellanas
+Si desean unirse a nosotros en este gesto de amor y solidaridad, pueden hacerlo a través del siguiente enlace: [Nariz Roja](https://narizroja.org/te-gustaria-ayudar/).
+
+¡Gracias por apoyar una causa tan importante!
+
 
 ## Preguntas Frecuentes
 
@@ -42,9 +40,6 @@ No, y esto no es algo que nosotros hayamos decidido, pero como el evento va a se
 
 **¿Habrá comida especial para dietas restrictivas?**
 ¡Por supuesto! Estamos intentando que sea una comida con variedad para todas las dietas pero por favor avísanos con anticipación sobre cualquier restricción dietética y haremos los arreglos necesarios para asegurarnos de que disfrutes de la comida sin preocupaciones. 🥗🍰
-
-**¿Tienen mesa de regalos?**
-No, pero pensamos nos gustaria que en lugar de regalarnos algo dones a esta asociación: [Nariz Roja](https://narizroja.org/te-gustaria-ayudar/)
 
 
 >[!TIP]
